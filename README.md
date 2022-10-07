@@ -1,6 +1,6 @@
-### Oi, eu sou a giulia 👋
+### Oi, eu sou a giuli 👋
 - 🌱 Eu estou aprendendo JAVA
 - 💬 Ask me about ...
-- 📫 Onde me encontrar: @giuli4r
+- 📫 Onde me encontrar: @giulilorrany
 
 
